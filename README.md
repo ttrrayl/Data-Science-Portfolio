@@ -61,4 +61,4 @@ Agust 2020 - Nov 2024.
 
 ## Contacts
 - LinkedIn: [Tri Ayunia Patma Lubis](https://www.linkedin.com/in/triayuniapatmalubis/)
-- Email: parristianna@yahoo.com
+- Email: triayuniapatma@gmail.com
